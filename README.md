@@ -1,6 +1,6 @@
 # Ernesto Alejandro Trureo Gabello
 
-# Resumen
+# Resume
 
 I have +8 years working as software engineer. About 7 years working with JAVA. I worked for lot of projects of different industries as financial, retail and others. I have been working as a tech lead, I love to teach if I can, I'm really fast to learn new languages and/or technologies. I have a great passion for teamwork, I believe more in success as a team rather than personal. Known for good teamwork skills, passion for learning new technologies and very fast adaptation to changes.
 
